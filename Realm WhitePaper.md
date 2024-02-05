@@ -2,7 +2,7 @@
 Realm Token on Coreum Mainnet
 
 
-flat3arth
+Realm316
 
 
 Is The Earth Flat, A Simulation, Round, Or Donut Shaped?!
