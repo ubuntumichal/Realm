@@ -11,6 +11,8 @@ You Decide!
 
 In Truth, This Realm Is Unique and Beautiful
 
+Venture The Realm
+
 The Best Meme Token on Coreum
 
 Making Crypto Space Great Again
