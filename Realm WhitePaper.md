@@ -1,9 +1,11 @@
 # Realm
 Realm Token on Coreum Mainnet
 
+$realm
 
-Realm316
+subunit Realm316
 
+4,206,900,000 Sent to Pulsara Treasury
 
 Is The Earth Flat, A Simulation, Round, Or Donut Shaped?!
 
